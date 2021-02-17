@@ -1,0 +1,3 @@
+- 👋 I’m egg4096
+- 👀 I like water
+- 📫 I'm here: https://resite.link/werty
